@@ -1,1 +1,1 @@
-# GestaoDe-tica
+# GestaoDeOticas
